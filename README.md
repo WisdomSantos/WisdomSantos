@@ -1,1 +1,1 @@
-Fodase gamer
+Aprendendo essas parada aí
